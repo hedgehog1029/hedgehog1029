@@ -2,4 +2,4 @@
 
 pronouns: any
 
-![b](https://i.witch.press/YJuEFvx4.png)
+![b](https://i.witch.press/Lcpurd0l.png)
